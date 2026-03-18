@@ -1,4 +1,4 @@
-# The Over 50 Content Creator Resources & Assets Hub
+# The Over 50 Content Creator - Resources & Assets Hub
 
 Welcome to the official resource hub for The Over 50 Content Creator.  A place to explore, build, learn, and have fun while doing it.
 
